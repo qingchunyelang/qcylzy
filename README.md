@@ -1,7 +1,7 @@
 # 野狼贴吧资源度盘整合
 
 
-#### 度盘：<a href="https://pan.baidu.com/s/1sEgafWkEr11t4qqCrbotbA " target="_blank">提取码：02t9</a>
+#### 度盘：<a href="https://pan.baidu.com/s/1sEgafWkEr11t4qqCrbotbA/" target="_blank">提取码：02t9</a>
 
 
 
