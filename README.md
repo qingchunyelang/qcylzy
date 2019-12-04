@@ -31,3 +31,7 @@
 |小说插画|803 MB|
 |杂志扫图|59.4 MB|
 
+>仅学习交流使用，下载后24小时内删除
+
+
+>For study use only, please delete in 24h
